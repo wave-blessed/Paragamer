@@ -6,14 +6,14 @@
 
 - **Название**: The Paragamer
 - **Фэндомы**:
- - Worm
- - The Gamer  
+    - Worm
+    - The Gamer  
 - **Автор**: [0100010](https://forums.spacebattles.com/members/0100010.347701/)
 - [Ссылка на оригинал](https://forums.spacebattles.com/threads/the-paragamer-worm-the-gamer-w-ocs.496126/)
 - **Язык**:	Английский
 - **Переводчики**
- - [Korleone](http://fanfics.me/user230187)
- - [Wave](https://github.com/wave-blessed)
+    - [Korleone](http://fanfics.me/user230187)
+    - [Wave](https://github.com/wave-blessed)
 - **Разрешение на перевод**: Разрешение получено 
 - **Рейтинг**: R
 - **Жанр**: Action/AU/Drama/Hurt/comfort
