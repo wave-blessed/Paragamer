@@ -383,5 +383,3 @@ Um really, what the fuck? Did I stray out of the easy random encounter zone?
     Strategy: 1 (0.00%)
     Video Games: 25 (63.73%)
     Unspent Skill Points: 10
-     
-
