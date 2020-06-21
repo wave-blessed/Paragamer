@@ -100,7 +100,7 @@ She shrugs. “Still wouldn’t a stopped me.”
 
 “’Kay, don’t get dead or pregnant.” She shouts after me as I close the door.
 
-****​
+* * * *
 
 God I hate the cold. I wish there was a way I could use my power to keep warm without setting shit on fire or electrocuting someone; maybe a pocket hand-warmer? I lean against the street light at the bus stop, slip one hand out of my glove and touch the cold surface of the metal. I extend a conduit from the post to the wire inside and I start leeching off the city power. The street light flickers as I interrupt the current flow. Josephine had a fit when she saw her January electric bill; of course she doesn’t know why it was abnormally high. I have to do my heaviest siphoning from places that won’t notice.
 
@@ -108,7 +108,7 @@ I swap hands as one gets numb from the cold and keep an eye on the drug dealer b
 
 I still can’t get used to the fact there’s no school buses. I make sure I didn’t forget the free bus pass the school gave me as the city bus pulls up. I get on board and try my best to ignore the leers from randos, and pull my jacket more tightly closed. I feel the weight of my entirely fake Taser, reassured I haven’t forgotten it. I don’t need one, I can just use my bare hands, but it provides deniability against outing myself.
 
-****​
+* * * *
 
 I carefully avoid the ice patches as I ascend up the steps to the school. I don’t want to end up on my ass like that tall stringy haired brunette. Is it really so difficult to put a little more effort into sanding and salting the walkways? Those other bitches are hovering nearby snickering as the lanky girl gets up and brushes the dirty slush off her backside and gathers her things. I step around the lot of them, not interested in the petty drama. They’re all in some of my classes; I just haven’t cared enough to learn their names.
 
@@ -136,7 +136,7 @@ Idiots or no, I still loath English class, and Mrs. Cranston’s fat ass. She lo
 
 What’s worse is she was completely oblivious that what she did wrong. On my first day at this dump, ‘Let’s welcome a new student to class everyone; Ms. Mendez is from….Galveston, Texas. Uh, given recent events, let’s all be extra accommodating and mindful of sensitive topics…’ Yeah, that didn’t work at all; she should have kept her damn flabby double-chinned jaw shut. The entire school knew I was an Endbringer survivor before the end of the day. The only benefit was that several teachers are still going easy on me, so I’m going milk that while I can.
 
-****​
+* * * *
 
 “Julia Mendez, please come to the office, Julia Mendez, please come to the office.”
 
@@ -176,7 +176,7 @@ As Mr. Sims finally began his lecture, I let my senses disappear into the school
 
 While exploring the grid is neat, it’s of limited use beyond a certain range. While I can fuck around with stuff connected to it, I can only create the conduits that enable that manipulation a limited distance from myself, although hopping through conductive material extends that range.
 
-****​
+* * * *
 
 “—What about Saint’s Row? Grand Theft Auto?” Greg asks excitedly. He is starting to give me a headache and distracting me from my Drafting class.
 
@@ -232,7 +232,7 @@ If Greg had a tail it would be firmly tucked between his legs as he scoots away.
 
 “No, now shut up Greg, I have to get to class.” I hurry off down the hall before he can ask me something else.
 
-****​
+* * * *
 
 I do a slow jog across the school while deftly avoiding the crowds of milling students. I take a wide swing around a huddled group of Asian boys openly wearing gang colors. I normally don’t go to my locker at this time of the day, but I have to since I skipped doing so while at the office. I need to grab my History book for my next class. I’m in a hurry and someone is standing in front of my locker.
 
@@ -280,7 +280,7 @@ Also like this morning, I don’t budge, forcing her to slowly roll off mine as 
 
 What the hell was that? I need another cigarette to calm my nerves. Technically I’m still on probation, even if I am a thousand miles away I can’t afford to get into fight and get arrested again. I punch my locker, and then quickly open it to grab my books and head to class.
 
-****​
+* * * *
 
 The other Julia and the lanky girl are also in my history class. That Julia doesn’t dare do anything on her own without the support of the others she hung around, which thankfully, aren’t in this class. New Hampshire state history is basically just early US history, and is a lot less…involved and fervent… compared to Texas state history, which I took last semester. Mr. Mondale event spent a few days letting us watch a mini-series on the Alamo, back in November. This is just boring. I feel relieved when the bell rings for lunch.
 
@@ -344,7 +344,7 @@ I’m not broken, maybe just a few cracks here and there. I’m a Parahuman. Tha
 
 I finish off my horrid food and the vending machine loot, continue to smile, forced the occasional laugh, make small talk, and lie to myself throughout lunch. It’s just like yesterday, and just like what I’ll do tomorrow.
 
-****​
+* * * *
 
 Home Economics is another class I got dumped in because of my mid-year transfer and because it had spots available. However unlike drafting, it’s a boring waste of time, made bearable only by Rita sharing it with me. Maddy is in there too, but like the other Julia, she doesn’t dare to do anything on her own without the presence of the other idiots in the class.
 
@@ -388,7 +388,7 @@ My heart races as a car going down the street suddenly speeds up and veers towar
 
 She stares at me a bit in contemplation, before accepting it and climbing up on to the fence with me. We straddle the top, drop down and quickly walk across the field back to the gym in silence.
 
-****​
+* * * *
 
 I blink as another phone camera flash hit my eyes after we walk into the doors.
 
@@ -438,7 +438,7 @@ I’ve always been wearing baggy clothes, and only changed into my gym clothes i
 
 I coldly stare down at Hess and her feeble backfired attempt to invade my personal space. “You seem to be under the mistaken impression that you’re scary. News-flash, you’re not, not to me. You know where I am from, you know what happen there.” The locker room has become dead silent. “I saw IT, up close, less than 100 yards away, and I survived. So yeah, your capacity for scary intimidation tactics and stupid pranks is phenomenally short of the bar. Understand?” Sophia just stares at me silently for a moment. “I’ll take your silence as a yes. That’s good. Now kindly fuck off and go bother someone else.”
 
-****​
+* * * *
 
 Sophia and Emma back down. Time will tell if it will stick, or they’re just planning something for later. How lame are they that they actual take time out of their day to arrange crap like that, if what Taylor accused her of is true? I finish getting dressed and leave early. The 3:15 bell rings as I sit down at a computer in the library, finally able to log in, browse the internet, and check out my new school email address. I log into the email that I had given Simon and haven’t looked at in months. It’s flooded with spam, and isn’t worth sorting through anymore. I fish the email address I saved into my phone and compose a new one from my school address.
 
@@ -448,9 +448,9 @@ From: [email protected]
 
 Subject: Hey Simon, it’s Julia
 
-Hey, sorry, haven’t been able to get online until now. This school is a dump and only just gave me access and this email address today. Don’t know if you sent anything, my other email got flooded with spam and don’t have time to sort through it right now. Reply to this one instead. I still don’t have a phone plan setup yet.​
+Hey, sorry, haven’t been able to get online until now. This school is a dump and only just gave me access and this email address today. Don’t know if you sent anything, my other email got flooded with spam and don’t have time to sort through it right now. Reply to this one instead. I still don’t have a phone plan setup yet.
 
-****​
+* * * *
 
 Parahuman, primary powers: eidetic reconstruction. Expressions: manifested energy constructs of pattern set, perfect visualization and design of pattern set. Enhanced use of pattern set. Eidetic reconstruction of mem-
 
@@ -466,7 +466,7 @@ I’m hit with a full body shudder as the memory washed over me. Calm, calm, I n
 
 I fumble with my lighter in the cold air, shielding my cigarette from the chill breeze and light dusting of falling snow. I take a deep inhalation and my nerves begin to settle. I need to know more, and use better sources than random speculation about powers on the internet. At least some of the links I ran across pointed to academic papers, I just didn’t have time to read them all.
 
-****​
+* * * *
 
 I step off the bus at the boardwalk. The wind has picked up and the snowfall is getting thicker, I pull my far too light of a jacket tighter as I window shop for something better. Neither I nor my sister had any winter clothes of significance. It’s not something needed on the gulf coast where you could sometimes go out in shorts in the dead of winter. I stamp out my cigarette and step into a retail clothing shop just to try and warn up for a bit.
 
@@ -498,7 +498,7 @@ A charge escapes me, pushing through my conduit into and through the wiring syst
 
 No, I can’t do that, that’s stupid. It’s still daylight out, I can’t fit a heavy winter coat under my jacket, and I’m still on probation. I discard the coat and the store clothes and run out of the changing room, slowing down in the hallway before I step into the main store, and swiftly walk toward the exit. Nobody has even looked up, the lights are still on, other customers are still checking out at the registers. I look back as I exit to see a security guard come out from the back and move toward the sales counter, so I run off down the street.
 
-****​
+* * * *
 
 My feet are cold as I crunch through the three inch thick snow cover on my street. I avoid the icy sidewalk to walk in the grass. I don’t want to slip, before I even got to where I’m going. At least the coat I did buy is warm and clean, even if ugly; fifteen bucks from goodwill. I should have gotten two, but I don’t have any money left. I need two so I can have one when I’m not in costume, if you can even call it that. Ratty hiking boots, baggy sweatpants over jeans, winter coat, ski mask and scarf to hide my face and gloves is more ‘someone dressed for winter’ than costumed vigilante.
 
@@ -552,7 +552,7 @@ I feel a surge of heat as the mattress on the floor suddenly burst into flames, 
 
 I pull him off the porch and I left the man lying in the rapidly melting snow of the front yard. I check for a pulse, he actually still has one. I make sure the scarf and mask covering my face is still intact, the neighbors are defiantly watching as the house catches fully on fire behind me. Someone is probably filming too. Even though my house is a mere block down the street I go right past it as I flee the scene.
 
-****​
+* * * *
 
 I walk home an hour later at two in the morning, after cleaning up and hiding out at the 24 hour Jack-In-The-Box down the road. I come down my street in severe pain, and very cold after stashing my costume in my gym bag. My crappy costume now has burn holes in numerous places from ineffectively passing current through it.
 

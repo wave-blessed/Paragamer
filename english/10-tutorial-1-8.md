@@ -61,7 +61,7 @@ I’d think a quest telling you to visit places would’ve something to find the
 
 Julia still doesn’t want to talk when we get back. Miss Heath did show up, she and Julia disappear for a while. I have to hope for the best there. I guess some good happens as my relationship goes up a few points, but there’s no quest completion announcement yet. I resume grinding Artistry and timing my mana regen rate. I gain 1 MP almost every five minutes.
 
-****​
+* * * *
 
 “Simon Anderson?” someone calls my name, I look up from my doodling. A camp aid workers calls it again and I head over.
 
@@ -336,7 +336,7 @@ Your Observe skill has increased by 1
 
 I reach level 5 this evening from all the crowds of people and it unlocks a feature that let me view stat blocks. Now I can see people’s base STR value and their Allure value. But all the other stats are listed with question marks. Also STR modifiers and the STR total also still have question marks. So far, the average for STR appears to be in the 15 range for adults and older teenagers. Men are a little above that, women are a little below it. I have a 6. I’m so pathetically weak. Julia has a 13, more than twice mine! She also has an Allure of 5.5, which is decidedly not a 10 point scale, because it seems the average Allure of most adults is maybe a 4? The highest I saw was a 7.5, but it was on a dude, so apart from the unexpected number I didn’t much pay attention.
 
-****​
+* * * *
 
 Over the weekend of the 26th and 27th, Julia and I smoke, talk and visit some sweepstakes game room that doubles as an internet café. It’s not an arcade; that would have been preferable by me. It’s a video slots parlor where nobody playing slots actually uses the internet services.
 

@@ -100,7 +100,7 @@ With a click, Potter hung up.
 
 I make my way to my lab to get my air chariot ready, and send Mandy a coded text to her PRT phone to get ready. It’s just past noon, so she and the other wards are still in school and will have to discreetly excuse themselves.
 
-****​
+* * * *
 
 I wait on the roof of the Protectorate building, I manage to see Slipstream’s silver blur for a fraction of a second before a massive gust of wind buffets the building and she drops out of the sky and comes to an inertia-defying sudden dead stop floating above the helipad. If her feet were on the ground she would have been bouncing with excitement, in addition to the unrestrained grin across her face.
 
@@ -258,7 +258,7 @@ Suddenly Potter starts punching himself in the face and body?
 
 Under the costume mask was a rubber mask of bald man, under that was sand and the hollowed out head of a plastic Halloween skeleton, containing two cellphones and a speaker all wired up together.
 
-****​
+* * * *
 
 Once we dissolved all the foam and ran the rest of ‘Potter’ through inventory and evidence processing we got a much closer look. It was all sand, plastic skeleton, bits of driftwood and cloth, and the remnants of his costume that had been loosely draped over whatever this thing was. We ship it all off to the analysts and wait for their report.
 

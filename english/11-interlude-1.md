@@ -66,7 +66,7 @@ I don’t need this again, I grab my crutch, jacket and the padded shoe thing th
 
 “Pavilion area”
 
-****​
+* * * *
 
 “Hey” Simon says as he sits down across from me at the Pavilion table with a try of food. There had been another food truck already set up here by FEMA when we arrived. It wasn’t free, but did take vouchers that had been handed out when we got here. Most of them have been used up.
 
@@ -154,7 +154,7 @@ Mrs. Pearson looks at a sheaf of papers in her hand. “Ronald, Chris, and Simon
 
 “Then get rid of that cigarette you’re hiding under the table and get back to pack as well. I have to drive the whole lot of you back into Houston and I want to head out as soon as possible.”
 
-****​
+* * * *
 
 We arrive at the Becketts’ house and start piling out of Mrs. Pearson’s minivan. She hands all of us a stack of stapled forms labels ‘Your Rights and Responsibilities under the Texas Foster Care System’. I assume she gave all the other kids we already dropped off the same thing but we never got out of the car for those. I could only glance through it before receiving another stack of blank forms titled ‘Inventory of belongings’. My panic begins to rise.
 

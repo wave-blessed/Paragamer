@@ -88,7 +88,7 @@ So many things are happening at once. “Get out of the water!” The red head y
 
 Some foggy vision of two great bloated whale-like worms spiraling through space filled my mind like a nightmare.
 
-****​
+* * * *
 
 [Host attachment completed.]
 JESTER: uncompress –all
@@ -101,7 +101,7 @@ JESTER: uncompress –all
 [Insufficient space]
 JESTER: /msg GAIA “DELETE EXTRANEOUS HOST DATA?”
 GAIA: /msg JESTER “…”
-JESTER: /msg –attach [[​IMG]]
+JESTER: /msg –attach [goo.gl/VXTqaq]
 GAIA: /msg JESTER “AGREEMENT”
 JESTER: delete –filter tag: extraneous
 JESTER: uncompress –all

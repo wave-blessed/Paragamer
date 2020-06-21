@@ -53,7 +53,7 @@ So just what the fuck is ‘Null Resistance’? “Skills”
 
 Um, okay sure. I’ll accept whatever the hell that is. How did that even happen?
 
-****​
+* * * *
 
 I don’t know how long it’s been, still don’t have a watch or phone. I’m in some kind of waiting area in a different, smaller tent. I still haven’t seen Dr. Johnson. The nurse or maybe it was just an assistant, said ‘wait here until you’re called’ so I am. Finally gives me a chance to go through all those damn notification options to try and reduce the spam.
 
@@ -117,7 +117,7 @@ Another wince of pain and another unread notification incremented as a molded pl
 
 I go back to the tent that had the cots to figure out what the hell else I could do with myself.
 
-****​
+* * * *
 
 To my disappointment the notifications didn’t indicate I’d gained a first aid skill, just two points of HP damage from my bone getting adjusted. I told Julia that I mentioned her to the doctor, and confirm she couldn’t walk too well on her injured leg.
 
@@ -184,7 +184,7 @@ Waiting around yet more, I get yet another notification message. +2 relationship
 
 And our conversation goes cold, another unread notification incremented. I whisper to check my notifications again; I gained +2 relationship with Julia, then lost one. At least it’s forward progress. I just wish I had some idea of how much was actually needed for friend status or what not.
 
-****​
+* * * *
 
 We stand in the line in silence for a while. Julia pulls her phone out a few times, and I manage to glance at the time. It’s a bit past one in the afternoon. I’m starting to get hungry again.
 
@@ -244,7 +244,7 @@ Julia broke the silence after we finished. “They made some announcement while 
 
 “Well I should see if that other shelter place is open and register with them. You probably should too just in case. Then we can look for another supply drop if you want.” I hold my hand out to her to help her stand up. She takes it, but got that confused funny look again when she did so, and we head out of the tent.
 
-****​
+* * * *
 
 Another hour gets wasted waiting in line to register for the onsite shelter. Since we aren’t related they don’t place us near each other. Julia doesn’t have any issues; she actually has her ID on her. I don’t have squat, and can’t remember anything. Name? Simon Anderson. Age? 15. Date of Birth? Don’t know. SSN? Don’t know. Address? Don’t know. Parents, family? Don’t know. Don’t know, don’t know, and don’t know. The FEMA paper-pusher has the gall to start getting annoyed at me, for not being able to fill out his forms. Whom to release my info to? Fuck, anyone! If someone is looking for some kid named Simon Anderson I want to meet them, because I want to find someone that fucking knows me. One of his co-workers waives me along before I was about to make more of a scene. I get a printed picture of me and assigned a new cot. Yay, apparently that counts cause another DING went off toward my quest completion. Water, food, medicine, shelter down, now I just need info and clothing.
 
@@ -262,7 +262,7 @@ I turn to look at Julia, she wasn’t the only one in the throng of watchers cry
 
 Julia dried her face off with her filthy shirt, and hobbled after me. I stopped by a message board outside the hut and tacked my printed photo on it, and scrawled a message. ‘Simon Anderson staying here, if you know me or recognize my picture please seek me out and leave a message.’ The board is filling up with similar messages as well as pictures of missing persons.
 
-****​
+* * * *
 
 We learn how to chase helicopters. Well Julia did, she could see which ones flying overhead looked like they were holding supply palettes. I couldn’t see for shit that far away. Her crutches didn’t let us move very fast, but we were closing in on a drop we followed, but had gotten pretty far off from the shelter area. The streets look pretty wrecked. We even pass by a toppled boat that had been deposited on top of a house. I sure as hell hope the supplies had clothes, but anything would be nice.
 

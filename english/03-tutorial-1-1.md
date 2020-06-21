@@ -48,7 +48,7 @@ Um okay… well that answers how I can get some XP. I tap the ‘Y’. Of course
 
 “Quests,” yep, there it is, and it looks like there is a place for a quest log too. I close the window so I can get on with finding some damn water.
 
-****​
+* * * *
 
 After much wandering and asking around, someone directs me to a crate containing water bottles. There aren’t many left, I grab a few of them.
 
@@ -240,7 +240,7 @@ The Status Effect ‘Extremely Stressed’ has been partially negated by Gamer�
 
 Uhh.. my weird ass power agrees with me?
 
-****​
+* * * *
 
 I wander back over toward my cot, but it’s still occupied by the now sleeping kid. I observed him and actually got a level number visible. Kid was level 2, whatever that means. Wait, why the fuck am I only level 1? Still don’t know his name, observing people let me know their gender and if they were refugees or nurses or doctors, which is already glaringly obvious from what they’re doing. It doesn’t reveal anyone’s names unless I ask it and not a lot of people are being very talkative. I can get a non-question mark level value for anyone that was ‘level 1’ or ‘level 2’, and those are all young kids, early to middle elementary age. Hell even an infant said ‘level 0’. Again, why the fuck am I only level 1? If it is age or experience then that doesn’t make any sense. Threat level? I have no idea. There’s a few other double question marks besides Julia, but not many.
 

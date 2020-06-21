@@ -122,7 +122,7 @@ For performing a repeated action you may gain the ‘Disease Resistance’ skill
 
 Yeah, I want that. I wonder if I should keep to my antibiotics or try to train this skill up by skipping them? No, better safe than sorry; I want those negative effects gone, so I can ‘Get Healthy Again’. Should probably use more cream too, I get up again to take care of that and pop my pills. I need a new water bottle.
 
-****​
+* * * *
 
 I palm a screwdriver and some needle nose pliers out of some dudes toolbox while he’s underneath a generator. I steal a pen, clipboard, and a small stack of blank forms from the shelter registration desk. I notice my status screen changes.
 
@@ -211,7 +211,7 @@ I don’t know what else to say by the time she finishes eating. Wait, no I do, 
 
 We really do pack it all. At least we have backpacks now. I have spare clothes, soap, shampoo, Meds, that weird shower in a can thing. Guess I should use it soon. A screwdriver, pliers, clipboard, pen, papers, a FEMA blanket, yeah I took that shit. Oh, my new wallet and $240 in cash.
 
-****​
+* * * *
 
 “...so you don’t remember where your house is, or family or friends or anything, but you remember video games?” Julia asks me as we duck under some roped off caution tape and enter a residential area.
 

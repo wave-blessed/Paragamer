@@ -224,7 +224,7 @@ As I fish for a shopping bag I hear something behind me, stand up and spin aroun
 
 “What? I don’t have—“ he throws a punch at me.
 
-****​
+* * * *
 
 Your Gamer’s Body skill has increased by 1
 Your Gamer’s Body skill has increased by 1
@@ -314,7 +314,7 @@ We hear a very close helicopter hovering overhead as we make our way over to the
 
 “Let’s definitely get out of here quick.”
 
-****​
+* * * *
 
 It’s dark when we make it back to the shelter. They’ve completed some basic showers and porta-pottys while we were out. There is already a long line for both. Julia gives me some toilet paper rolls she swiped from the ladies restroom at the department store. Grabbing some of those totally slipped my mind. Julia watches my stuff while I’m in line to see a doctor again. I finally catch up on my unread notifications and the pop-up window I ignored earlier. I look at the pop-up first.
 

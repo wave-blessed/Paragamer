@@ -387,7 +387,7 @@ I pull the pink mask off. “I’m Simon Anderson, my Friend is Julia Mendez. We
 
 Your Speech skill has increased by 1
 
-****​
+* * * *
 
 Back at the shelter, I go to see Julia again. More speech skill, I show my escort I’m bringing food. She’s awake this time and has eaten the breakfast I had left her. “Observe.” The ‘Suicidal’ under currently feeling is now replaced with ‘Reckless Apathy’. Is that better or worse?
 

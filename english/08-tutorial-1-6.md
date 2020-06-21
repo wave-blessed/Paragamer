@@ -291,7 +291,7 @@ A new unread notification appears, but I can’t check on it. Cory speaks to bot
 
 Cory sighs again. “No, underlying sand is too unstable. We’ve had a couple buildings collapse already in the last 24 hours as it resettles.”
 
-****​
+* * * *
 
 I help Julia pack over the next hour, until we have two full suitcases. It’s not all clothes; she had put photos, jewelry and other personal items within as well.
 
@@ -389,7 +389,7 @@ Julia tosses one of her crutches on the ground and picks up the suitcase that Jo
 
 “It’s understandable, thanks for putting up with me.”
 
-****​
+* * * *
 
 We break into the craft store by smashing a window with Julia’s crutch. No one has hit this place yet, probably because no one thought paints, knick-knacks, fake floral arrangements, and decorations are worth looting. We eat the food from Julia’s house. It isn’t ideal, but it gave me back as much HP as I had lost wildly stopping roaches and getting my arm wrenched by the coast guard. Julia stands watch while I do my thing. I take advantage of the opportunity to review my unread notifications.
 
@@ -425,7 +425,7 @@ My ‘Disable Device’ attempt on the manager’s office door fails repeatedly.
 
 “Eeep!” I scream as Julia startles me. “Um yeah, let’s go.”
 
-****​
+* * * *
 
 We leave the store and get to Julia’s dad’s place of work without incident, but it was getting late in the evening. I’m able to carry the suitcase now without my SP falling and it slowly begins to rise. Any attempt to go faster than a walk, lowers my SP or threatens to jostle my arm. The Exhausted status effect went away after I got SP into the positive range.
 

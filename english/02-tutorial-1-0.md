@@ -1,4 +1,3 @@
-
 Sunday December 20th, 2009
 
 “DING!”
@@ -30,7 +29,7 @@ What the fuck?
 
 I turn my head to the side, the effect of the drugs kick in as my body begins to still. The platform we’re on is being hoisted out of the sinkhole by a tinker-tech VTOL craft. I see a second craft and platform rising up with us. My glasses are gone, I can’t make out any faces or much in the way of details. I could see some human figure strapped into the other platform, literally sparking. Arcs of electricity were jumping off of him. Some cape hovers next to the platform in a jet pack as it is rising. The sedatives have fully kicked in and my vision fades. As it does so, the stupid glowing blue rectangle hasn’t gone away.
 
-****​
+* * * *
 
 I haven’t even opened my eyes, yet I see the edge of the rectangle. It’s off to the side of my vision. I wave my good arm around a bit, my other one seems to have been splinted up while I was asleep. Finally, I manage to drag the window back to the front of my vision and carefully read it.
 
@@ -437,4 +436,4 @@ Oh for fuck’s sake. I dismiss the notifications, close the skills screen and s
 
 -3 comfort from standing up from the ‘Stained Folding Cot’
 
-God damn it. 
+God damn it.
