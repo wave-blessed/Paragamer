@@ -8,15 +8,15 @@ Shard — Осколок (термин из канона, хотя я точно
 Julia Catherine Mendez — Джулия Кэтрин Мендез
 Becketts — Беккеты
 Rachel Anna Zamora — Рейчел Анна Замора
-->Lifeline — Рука Помощи 
+->Lifeline — Рука Помощи
 ->Rappel — Дюльфер
 ->Granite — Гранит
-->Dillon Maxwell / Sparky / Arc — Диллон Максвел / Искорка / Разряд, 
+->Dillon Maxwell / Sparky / Arc — Диллон Максвел / Искорка / Разряд,
 ->Ark — Раскат
 ->Secessionists (название банды) — Сепаратисты
 ->Mandy Pickens / Slipstream — Мэнди Пиккенс / Воздушный(?)Скользящий Поток (?) >__< Может, потом придумаю другой.
 Arthur Kensington / Dispatch — Артур Кенсингтон/ Курьер
-Robert Graves / Exalt — Роберт Грейвс / Возвышенный 
+Robert Graves / Exalt — Роберт Грейвс / Возвышенный
 Travis Milton / Olympus — Трэвис Милтон / Олимп
 Немного по национальностям:
 Caucasian — 'европеоид'
@@ -51,3 +51,23 @@ enemy — враг
 -> For careful thought and consideration of the consequences of your decisions you have gained 1 WIS — За тщательное размышление и рассмотрение последствий ваших решений, вы зарабатываете 1 МУДРОСТЬ.
 -> For exhaustively testing and training your senses, you have gained 1 PER — За исчерпывающие тестирование и тренировку ваших чувств вы заработали 1 ВОСПРИЯТИЕ.
 -> For cultivating your social demeanor and engaging others you have gained 1 CHA — За развитие своего социального поведения и привлечение других вы получаете 1 ХАРИЗМУ.
+<b>Новые термины, появившиеся в четвёртой-пятой арках</b>
+<b>Watchdog</b> — реально существующая организация в мире Червя. Название появляется только в Страже, предварительно в официальном переводе будут Сторожевые Псы.
+Power Summary — Описание Сил
+Primary — Главная
+Secondary — Вторичная
+Superhuman Perfection — Сверхчеловеческое Совершенство
+Superhuman Mastery — Сверхчеловеческое Мастерство
+Grand Master — Великий Мастер
+High Master — Высший Мастер
+Great — Выдающийся
+Accomplished — Блестящий
+Professional — Профессионал
+Talented — Талант
+Proficient — Умелец
+Skilled — Опытная
+Expert — Эксперт
+Adept — Адепт
+Competent — Знаток
+Adequate — Удовлетворителен
+Dabbling — Любитель
