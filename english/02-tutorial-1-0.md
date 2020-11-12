@@ -6,7 +6,7 @@ Sunday December 20th, 2009
 
 I cough up what feels like a gallon of grey-brown fetid water. Throw some up as well, then dry-heaved and dry coughed simultaneously for, I don’t know how long. My ears are ringing, my vision’s blurry and my body hurts all over. When my eyes finally focus a bit, I see a bright blue rectangle in front of me.
 
-    Life’s a Game.​
+    Life’s a Game.
     Welcome Gamer! A new game has begun. You’re in an open-ended world and your main objective is to not die. How long can you last? Oh and by the way, you’re a Parahuman. A cape! Well maybe not a cape yet, until you take up that mantle, but you get the idea. Lucky you though, you’re the most unique Parahuman of all! You have the power of gaming and we’ve hacked your body and mind to manifest this in the manner you feel most comfortable and familiar with, video games!
 
     What you’re looking at now is a standard interface window. They’ll tell you everything you need to know about your progress (or lack thereof), and so on. You can close interface windows by touching the X button in the upper right corner or saying “Close”.
