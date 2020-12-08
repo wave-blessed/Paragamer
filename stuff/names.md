@@ -71,3 +71,4 @@ Adept — Адепт
 Competent — Знаток
 Adequate — Удовлетворителен
 Dabbling — Любитель
+Novice — Новичок
